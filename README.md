@@ -1,0 +1,1 @@
+# Resposta-prova-Prova-da-aula-3-PYIA---Python-IA-
